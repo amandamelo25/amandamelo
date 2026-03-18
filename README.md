@@ -10,4 +10,4 @@
 - Programação Orientada a Objetos
 
 ## Contato
-🔗 LinkedIn: (coloque aqui o link do seu LinkedIn)
+🔗 LinkedIn: (www.linkedin.com/in/amanda-melo25)
